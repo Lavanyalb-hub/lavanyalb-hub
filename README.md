@@ -1,5 +1,6 @@
 # 💫 About Me:
-Engineering Students
+Im engineering student
+undergraduting in RV college og engineering 
 
 
 ## 🌐 Socials:
